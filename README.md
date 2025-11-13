@@ -1,2 +1,2 @@
 # FOSS_Trainee
-Hello Everyone, I'm Riya Ghoshi 
+Greetings Everyone, Riya Ghoshi here, BTech IT First Year Student (Section A), from Narsinghpur (Madhya Pradesh). 
